@@ -1,4 +1,4 @@
-#  
+#  Experience pressure like never before with pressure smart Scripts, the #1 Script. Includes unlimited stamina and aimbot for unbeatable performance.
 
 
 
